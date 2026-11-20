@@ -1,0 +1,1 @@
+# Labyrinth-of-Galleria-PS-Vita-Official-English-Script-Port
